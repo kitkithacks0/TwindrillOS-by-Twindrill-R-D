@@ -3,3 +3,5 @@ TwindrillOS is made by me and i put it under Twindrill R&amp;D because it is my 
 
 If you're going to make a pro or ultimate version ofthis pls remember to add youre self in too and keep it free.
 Remember no selling okay,now just do whatever you want.
+
+I thinked it will be delayed due to technical difficulties and im all alone and graduation is coming up.
